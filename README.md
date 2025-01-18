@@ -1,10 +1,11 @@
-*`DECLAIMER`*
+## `DECLAIMER`
 
 _THIS IS AN PAID FACEBOOK ACCOUNTS CLONING TOOL_
 
-`DEVELOPER`
+## `DEVELOPER`
 
 _1.<p><a href="nn">ABHI JAHIRWAL (CLONING SYSTEM)</a></p>_
+
 _2.<p><a href="heheeh">ꕥؖؖؖؖؖꕹؖؖؖؖؖؖؖؖؖꕹؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖꗝ ꓧٜٜٜٜٜٜٜٜٜٜٜٜٜٜٜٜٜٜٜٜꓥٜٜٜٜٜٜٜٜٜٜٜٜٜٜٜٜꓚٜٜٜٜٜٜٜٜٜٜٜٜꓗٜٜٜٜٜٜٜٜꓰٜٜٜٜꓣٜ ꗝؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖؖꕹؖؖؖؖؖؖؖؖؖꕹؖؖؖؖؖꕥ (APROVAL SYSTEM)</a></p>_
 
 
