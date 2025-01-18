@@ -36,5 +36,7 @@ cd Paid
 python Abhii.py
 ```
 
+![IMG](https://raw.githubusercontent.com/4bHii-057/Headoffice/refs/heads/xg/IMG_20250118_194245.jpg)
+
 
 <p>&copy 4bHii-057 2025 ALL WRITES RESERVED</p>
